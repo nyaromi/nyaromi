@@ -10,7 +10,8 @@
    ㅤ  ˖    𓈒  𝟏𝟓𝐲.𝐨.𓈒݂ ݃   ⑅  ‌‌ ‌‌𓏽   𝒎𝒊𝓵࣫𝒌𝒂𝒌𝒊͟𝒔𝒔𝒆𝓻 ㅤ ︎
    
 ㅤㅤㅤㅤㅤㅤㅤ𓏼 . ֹ 𝓜𝒚 𝒇𝒂𝒏𝒅𝓸𝒎𝒔 :⎯  𝒏𝓮𝒆𝒅𝒚 𝒔𝒕𝓻𝒆𝒂𝒎𝒆𝓻 𝒐𝒗𝒆𝒓𝒍𝒐𝒂𝒅, 𝒂𝓵𝒊𝒆𝒏 𝒔𝒕𝒂𝓰𝒆, 𝒎𝒊𝓵𝒈𝒓𝒂𝒎, ㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://64.media.tumblr.com/8643ad3ebd3901cd5d92a5530a1f5503/81aa5d634e7e9bb3-05/s75x75_c1/692b08a52c2fa702c5071de5905d222ce9d50256.gifv"/>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://64.media.tumblr.com/6c2ba1a37158c25f33af4fda00f0d868/81aa5d634e7e9bb3-18/s75x75_c1/c98eef93b4cf229ad530faf1e8c9369c9da449fc.gifv"/>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝒔𝒍𝒐𝔀 𝒅𝒂𝒎𝓪𝒈𝒆, 𝒉𝓸𝓸𝒌𝒂𝒉 𝒉𝒂𝔃𝒆, 𝒔𝒆𝓴𝒂𝒊, 𝒃𝒂𝒏𝓰 𝒅𝓻𝒆𝒂𝒎! 𝒐𝓾𝒓 𝒏𝒐𝓽𝒆𝒔𓏺𓏺 ִ ‌
+
+<img src="https://64.media.tumblr.com/6c2ba1a37158c25f33af4fda00f0d868/81aa5d634e7e9bb3-18/s75x75_c1/c98eef93b4cf229ad530faf1e8c9369c9da449fc.gifv"/>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝒔𝒍𝒐𝔀 𝒅𝒂𝒎𝓪𝒈𝒆, 𝒉𝓸𝓸𝒌𝒂𝒉 𝒉𝒂𝔃𝒆, 𝒔𝒆𝓴𝒂𝒊, 𝒃𝒂𝒏𝓰 𝒅𝓻𝒆𝒂𝒎! 𝒐𝓾𝒓 𝒏𝒐𝓽𝒆𝒔𓏺𓏺 ִ ‌
 <div align="center">
 
 <table border="0">
