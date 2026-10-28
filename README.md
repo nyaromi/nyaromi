@@ -11,4 +11,15 @@
    
 ㅤㅤㅤㅤㅤㅤㅤㅤ𓏼 . ֹ 𝓜𝒚 𝒇𝒂𝒏𝒅𝓸𝒎𝒔 :⎯  𝒏𝓮𝒆𝒅𝒚 𝒔𝒕𝓻𝒆𝒂𝒎𝒆𝓻 𝒐𝒗𝒆𝒓𝒍𝒐𝒂𝒅, 𝒂𝓵𝒊𝒆𝒏 𝒔𝒕𝒂𝓰𝒆, 𝒎𝒊𝓵𝒈𝒓𝒂𝒎, 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝒔𝒍𝒐𝔀 𝒅𝒂𝒎𝓪𝒈𝒆, 𝒉𝓸𝓸𝒌𝒂𝒉 𝒉𝒂𝔃𝒆, 𝒔𝒆𝓴𝒂𝒊, 𝒃𝒂𝒏𝓰 𝒅𝓻𝒆𝒂𝒎! 𝒐𝓾𝒓 𝒏𝒐𝓽𝒆𝒔𓏺𓏺 ִ ‌
-<img src="https://64.media.tumblr.com/856923aa20363139f320757de7d84b14/e3995f53c47181f4-19/s2048x3072/7ca29b73b3815884c61cbcb47910b4c8f2947efe.pnj"/>
+<div align="center">
+
+<table border="0">
+  <tr>
+    <td><img src="https://i.pinimg.com/736x/31/71/f2/3171f29d6d42c4d85834b84dcf15ef59.jpg" width="200"/></td>
+     <td><img src="https://i.pinimg.com/736x/dc/f7/8f/dcf78fda8a377fd7941bebcdf9762515.jpg" width="200"/></td>
+    <td><img src="https://i.pinimg.com/736x/8e/e9/49/8ee949dc773882ec25af142a7a198f3a.jpg" width="200"/></td>
+   
+  </tr>
+</table>
+
+</div>
