@@ -1,13 +1,14 @@
 <div align="center">
-<img src="https://64.media.tumblr.com/e97fade66c788f48664fe5ab64d7fe9d/579e5316ffbe1944-e6/s2048x3072/4b4feb9a5969f9bb37457a533717662f75db854e.gifv" width="100%" />
-<h1>       ྀི   𝒂𝒃𝒐͜𝒖𝒕 𝒎𝒆    ྀ    ♪</h1>
-ㅤ ㅤ ㅤㅤ   ׄ︎   ︎ ︎  ׅ    <img src="https://64.media.tumblr.com/ee096adda5334d9c5c6d339ef816c931/33171e372415b0e2-b4/s75x75_c1/c670e9a919e46ef7d2759718fc2b5931bea1a0f2.gifv"/>       ⎯ㅤㅤㅤㅤㅤㅤ
+<img src="https://64.media.tumblr.com/e97fade66c788f48664fe5ab64d7fe9d/579e5316ffbe1944-e6/s2048x3072/4b4feb9a5969f9bb37457a533717662f75db854e.gifv"width="100%"/>
+<h1> ྀི   𝒂𝒃𝒐͜𝒖𝒕 𝒎𝒆    ྀ    ♪</h1>
+
   
-   𓍼 𝓼𝒑𝟒꯭𝒔𝓹𝟔𝒔࣫𝓸𝟖  ྀི  𝓝𝐲𝐚𝐫‌𝓸𝓶𝓲  ︎𝐢࣫𝐧ֵ𝓯𝐩 ֪
+ ㅤ ㅤ ㅤㅤ   ׄ︎   ︎ ︎  ׅ     <img src="https://64.media.tumblr.com/8c659948153789ddd1e20f19af6fe726/eb1e2c2b589fd488-ba/s250x400/e7fdfcc6111cdb72c3e30a73bf783ca808d9801e.gifv"/>        ⎯ㅤㅤㅤㅤㅤㅤ
+  
+   𓍼 𝓼𝒑𝟒꯭𝒔𝓹𝟔𝒔࣫𝓸𝟖  ྀི  𝓝𝐲𝐚𝐫‌𝓸𝓶𝓲   ︎𝐢࣫𝐧ֵ𝓯𝐩 ֪
 
    ㅤ  ˖    𓈒  𝟏𝟓𝐲.𝐨.𓈒݂ ݃   ⑅  ‌‌ ‌‌𓏽   𝒎𝒊𝓵࣫𝒌𝒂𝒌𝒊͟𝒔𝒔𝒆𝓻 ㅤ ︎
    
 ㅤㅤㅤㅤㅤㅤㅤㅤ𓏼 . ֹ 𝓜𝒚 𝒇𝒂𝒏𝒅𝓸𝒎𝒔 :⎯  𝒏𝓮𝒆𝒅𝒚 𝒔𝒕𝓻𝒆𝒂𝒎𝒆𝓻 𝒐𝒗𝒆𝒓𝒍𝒐𝒂𝒅, 𝒂𝓵𝒊𝒆𝒏 𝒔𝒕𝒂𝓰𝒆, 𝒎𝒊𝓵𝒈𝒓𝒂𝒎, 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝒔𝒍𝒐𝔀 𝒅𝒂𝒎𝓪𝒈𝒆, 𝒉𝓸𝓸𝒌𝒂𝒉 𝒉𝒂𝔃𝒆, 𝒔𝒆𝓴𝒂𝒊, 𝒃𝒂𝒏𝓰 𝒅𝓻𝒆𝒂𝒎! 𝒐𝓾𝒓 𝒏𝒐𝓽𝒆𝒔𓏺𓏺 ִ ‌
-
-ㅤ
+<img src="https://64.media.tumblr.com/856923aa20363139f320757de7d84b14/e3995f53c47181f4-19/s2048x3072/7ca29b73b3815884c61cbcb47910b4c8f2947efe.pnj"/>
