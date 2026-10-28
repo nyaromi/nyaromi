@@ -9,8 +9,8 @@
 
    ㅤ  ˖    𓈒  𝟏𝟓𝐲.𝐨.𓈒݂ ݃   ⑅  ‌‌ ‌‌𓏽   𝒎𝒊𝓵࣫𝒌𝒂𝒌𝒊͟𝒔𝒔𝒆𝓻 ㅤ ︎
    
-ㅤㅤㅤㅤㅤㅤㅤㅤ𓏼 . ֹ 𝓜𝒚 𝒇𝒂𝒏𝒅𝓸𝒎𝒔 :⎯  𝒏𝓮𝒆𝒅𝒚 𝒔𝒕𝓻𝒆𝒂𝒎𝒆𝓻 𝒐𝒗𝒆𝒓𝒍𝒐𝒂𝒅, 𝒂𝓵𝒊𝒆𝒏 𝒔𝒕𝒂𝓰𝒆, 𝒎𝒊𝓵𝒈𝒓𝒂𝒎, 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝒔𝒍𝒐𝔀 𝒅𝒂𝒎𝓪𝒈𝒆, 𝒉𝓸𝓸𝒌𝒂𝒉 𝒉𝒂𝔃𝒆, 𝒔𝒆𝓴𝒂𝒊, 𝒃𝒂𝒏𝓰 𝒅𝓻𝒆𝒂𝒎! 𝒐𝓾𝒓 𝒏𝒐𝓽𝒆𝒔𓏺𓏺 ִ ‌
+ㅤㅤㅤㅤㅤㅤㅤ𓏼 . ֹ 𝓜𝒚 𝒇𝒂𝒏𝒅𝓸𝒎𝒔 :⎯  𝒏𝓮𝒆𝒅𝒚 𝒔𝒕𝓻𝒆𝒂𝒎𝒆𝓻 𝒐𝒗𝒆𝒓𝒍𝒐𝒂𝒅, 𝒂𝓵𝒊𝒆𝒏 𝒔𝒕𝒂𝓰𝒆, 𝒎𝒊𝓵𝒈𝒓𝒂𝒎, ㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://64.media.tumblr.com/8643ad3ebd3901cd5d92a5530a1f5503/81aa5d634e7e9bb3-05/s75x75_c1/692b08a52c2fa702c5071de5905d222ce9d50256.gifv"/>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://64.media.tumblr.com/6c2ba1a37158c25f33af4fda00f0d868/81aa5d634e7e9bb3-18/s75x75_c1/c98eef93b4cf229ad530faf1e8c9369c9da449fc.gifv"/>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝒔𝒍𝒐𝔀 𝒅𝒂𝒎𝓪𝒈𝒆, 𝒉𝓸𝓸𝒌𝒂𝒉 𝒉𝒂𝔃𝒆, 𝒔𝒆𝓴𝒂𝒊, 𝒃𝒂𝒏𝓰 𝒅𝓻𝒆𝒂𝒎! 𝒐𝓾𝒓 𝒏𝒐𝓽𝒆𝒔𓏺𓏺 ִ ‌
 <div align="center">
 
 <table border="0">
@@ -21,5 +21,10 @@
    
   </tr>
 </table>
+<div align="center">
+
+[<kbd>𝐭𝐞𝐥𝐞𝐠𝐫𝐚𝐦</kbd>](https://t.me/nyarosha) - - ꒰ <img src="https://64.media.tumblr.com/134a49ff10d2afc43a19eda082540f3e/81aa5d634e7e9bb3-35/s75x75_c1/9e899358ce7c4f012224eaaf89c8ab052216d597.gifv"/> ꒱ - -
+[<kbd>𝐝𝐢𝐬𝐜𝐨𝐫𝐝</kbd>](https://discordapp.com/users/1092830937512935574)
 
 </div>
+<img src="https://64.media.tumblr.com/14f1523179980b45ee196a814bc3532a/05179435031f16b4-6f/s2048x3072/f145f1487b7e787350cf84066b8b66ea51a788df.pnj"width="900"/>
