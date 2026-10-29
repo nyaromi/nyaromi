@@ -1,18 +1,27 @@
 <div align="center">
-<img src="https://64.media.tumblr.com/e97fade66c788f48664fe5ab64d7fe9d/579e5316ffbe1944-e6/s2048x3072/4b4feb9a5969f9bb37457a533717662f75db854e.gifv"width="100%"/>
-<h1> ྀི   𝒂𝒃𝒐͜𝒖𝒕 𝒎𝒆    ྀ    ♪</h1>
+<img src="https://64.media.tumblr.com/e97fade66c788f48664fe5ab64d7fe9d/579e5316ffbe1944-e6/s2048x3072/4b4feb9a5969f9bb37457a533717662f75db854e.gifv"/>
+<table border="0">
+ <img src="https://64.media.tumblr.com/ed1a585056884ed0bc17925d0cca1fa9/c5fe67c813fcc966-49/s2048x3072/10e79c4ee9ea1a7d73ed816a570c5cb22eded5ec.pnj" align="left" hspace="20" width="225">
 
-  
- ㅤ ㅤ ㅤㅤ   ׄ︎   ︎ ︎  ׅ     <img src="https://64.media.tumblr.com/8c659948153789ddd1e20f19af6fe726/eb1e2c2b589fd488-ba/s250x400/e7fdfcc6111cdb72c3e30a73bf783ca808d9801e.gifv"/>        ⎯ㅤㅤㅤㅤㅤㅤ
-  
-   𓍼 𝓼𝒑𝟒꯭𝒔𝓹𝟔𝒔࣫𝓸𝟖  ྀི  𝓝𝐲𝐚𝐫‌𝓸𝓶𝓲   ︎𝐢࣫𝐧ֵ𝓯𝐩 ֪
+###  ྀི   𝒂𝒃𝒐͜𝒖𝒕 𝒎𝒆    ྀ    ♪
 
-   ㅤ  ˖    𓈒  𝟏𝟓𝐲.𝐨.𓈒݂ ݃   ⑅  ‌‌ ‌‌𓏽   𝒎𝒊𝓵࣫𝒌𝒂𝒌𝒊͟𝒔𝒔𝒆𝓻 ㅤ ︎
+      ︎ ︎  ׅ   <img src="https://64.media.tumblr.com/617aa885c5df33244237ed1512ce3f28/81aa5d634e7e9bb3-28/s75x75_c1/8a6e4acc7c2c2427a004f5600ddd8a81212a4f3c.gifv"/>          ⎯ㅤ
+
+   𓍼 𝓼𝒑𝟒꯭𝒔𝓹𝟔𝒔࣫𝓸𝟖  ྀི  𝓝𝐲𝐚𝐫‌𝓸𝓶𝓲   ︎𝐢࣫𝐧ֵ𝓯𝐩 
+
+ ︎<img src="https://64.media.tumblr.com/0f6c6c7726349963c0457e9c406097bd/c5fe67c813fcc966-7b/s400x600/cc8d4479fc20560f1471e9186c4d6d0d13875b95.pnj"/>
    
-ㅤㅤㅤㅤㅤㅤㅤ𓏼 . ֹ 𝓜𝒚 𝒇𝒂𝒏𝒅𝓸𝒎𝒔 :⎯  𝒏𝓮𝒆𝒅𝒚 𝒔𝒕𝓻𝒆𝒂𝒎𝒆𝓻 𝒐𝒗𝒆𝒓𝒍𝒐𝒂𝒅, 𝒂𝓵𝒊𝒆𝒏 𝒔𝒕𝒂𝓰𝒆, 𝒎𝒊𝓵𝒈𝒓𝒂𝒎, ㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://64.media.tumblr.com/8643ad3ebd3901cd5d92a5530a1f5503/81aa5d634e7e9bb3-05/s75x75_c1/692b08a52c2fa702c5071de5905d222ce9d50256.gifv"/>
+  ˖    𓈒  𝟏𝟓𝐲.𝐨.𓈒݂ ݃   ⑅  ‌‌ ‌‌𓏽   𝒎𝒊𝓵࣫𝒌𝒂𝒌𝒊͟𝒔𝒔𝒆𝓻 ㅤ
+  
+◟ ͜ ◞ ೀ ◟ ͜ ◞<img src="https://64.media.tumblr.com/aafc662407026adf70c946d6062a17de/c5fe67c813fcc966-cb/s100x200/7f68bb4e3755683f14e3a193598005054348ae4e.pnj"/> ◟ ͜ ◞ ೀ ◟ ͜ ◞
 
-<img src="https://64.media.tumblr.com/6c2ba1a37158c25f33af4fda00f0d868/81aa5d634e7e9bb3-18/s75x75_c1/c98eef93b4cf229ad530faf1e8c9369c9da449fc.gifv"/>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝒔𝒍𝒐𝔀 𝒅𝒂𝒎𝓪𝒈𝒆, 𝒉𝓸𝓸𝒌𝒂𝒉 𝒉𝒂𝔃𝒆, 𝒔𝒆𝓴𝒂𝒊, 𝒃𝒂𝒏𝓰 𝒅𝓻𝒆𝒂𝒎! 𝒐𝓾𝒓 𝒏𝒐𝓽𝒆𝒔𓏺𓏺 ִ ‌
+<img src="https://64.media.tumblr.com/27f4c6c3d8c6dc1f293675aed26cc125/06350ea23efff532-c3/s540x810/0072a829896fc92877447293edbeb77e55943594.pnj" align="right" hspace="20" width="450">
 <div align="center">
+  
+[<kbd>𝐭𝐞𝐥𝐞𝐠𝐫𝐚𝐦</kbd>](https://t.me/nyarosha) - - ꒰ <img src="https://64.media.tumblr.com/134a49ff10d2afc43a19eda082540f3e/81aa5d634e7e9bb3-35/s75x75_c1/9e899358ce7c4f012224eaaf89c8ab052216d597.gifv"/> ꒱ - -
+[<kbd>𝐝𝐢𝐬𝐜𝐨𝐫𝐝</kbd>](https://discordapp.com/users/1092830937512935574)
+
+</div>
 
 <table border="0">
   <tr>
@@ -23,9 +32,3 @@
   </tr>
 </table>
 <div align="center">
-
-[<kbd>𝐭𝐞𝐥𝐞𝐠𝐫𝐚𝐦</kbd>](https://t.me/nyarosha) - - ꒰ <img src="https://64.media.tumblr.com/134a49ff10d2afc43a19eda082540f3e/81aa5d634e7e9bb3-35/s75x75_c1/9e899358ce7c4f012224eaaf89c8ab052216d597.gifv"/> ꒱ - -
-[<kbd>𝐝𝐢𝐬𝐜𝐨𝐫𝐝</kbd>](https://discordapp.com/users/1092830937512935574)
-
-</div>
-<img src="https://64.media.tumblr.com/14f1523179980b45ee196a814bc3532a/05179435031f16b4-6f/s2048x3072/f145f1487b7e787350cf84066b8b66ea51a788df.pnj"width="900"/>
