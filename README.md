@@ -9,7 +9,7 @@
 
    𓍼 𝓼𝒑𝟒꯭𝒔𝓹𝟔𝒔࣫𝓸𝟖  ྀི  𝓝𝐲𝐚𝐫‌𝓸𝓶𝓲   ︎𝐢࣫𝐧ֵ𝓯𝐩 
 
- ︎<img src="https://64.media.tumblr.com/0f6c6c7726349963c0457e9c406097bd/c5fe67c813fcc966-7b/s400x600/cc8d4479fc20560f1471e9186c4d6d0d13875b95.pnj"/>
+ ︎<img src="https://64.media.tumblr.com/c14ecba845c3d810facd92bc6c3d5e7e/fd181e8fe1f35335-39/s400x600/121cb1a30f271bd392adc9415bcee9f5cead4d03.pnj"/>
    
   ˖    𓈒  𝟏𝟓𝐲.𝐨.𓈒݂ ݃   ⑅  ‌‌ ‌‌𓏽   𝒎𝒊𝓵࣫𝒌𝒂𝒌𝒊͟𝒔𝒔𝒆𝓻 ㅤ
   
@@ -17,7 +17,18 @@
 
 <img src="https://64.media.tumblr.com/27f4c6c3d8c6dc1f293675aed26cc125/06350ea23efff532-c3/s540x810/0072a829896fc92877447293edbeb77e55943594.pnj" align="right" hspace="20" width="450">
 <div align="center">
-  
+
+ㅤ
+
+ㅤ
+
+ִִ  ㅤ   ೀ ㅤㅤ ㅤ۫ <kbd>𝐁𝐘𝐅</kbd>ㅤ ۫  ㅤ<img src="https://64.media.tumblr.com/7db64d8144753af4276819f7fc5fcf1a/81aa5d634e7e9bb3-84/s75x75_c1/07730052034a755e9a9cb98481f9153cab088c1b.gifv"/>  ִ￴￴￴  
+𝐀𝐭 𝐟𝐢𝓻𝐬𝐭, 𝐈'𝐦 𝐯𝐞𝐫𝐲 𝓼𝐡𝐲 𝐚𝐧𝐝 𝐚𝐰𝐤𝐰𝐚𝐫𝐝, 𝐛𝐮𝐭 𝔀𝐡𝐞𝐧 𝐈 𝐠𝐞𝐭 𝐚𝐭𝐭𝐚𝐜𝐡𝐞𝐝, 𝐈 𝐛𝐞𝐜𝐨𝐦𝐞 𝐨𝐯𝐞𝐫𝐥𝐲 𝐚𝐜𝐭𝐢𝐯𝐞 𝐚𝐧𝐝 𝐜𝐥𝓲𝐧𝐠𝐲. 𝐖𝐡𝐞𝐧 𝐈'𝐦 𝐛𝐮𝐫𝐧𝐭 𝐨𝓾𝐭, 𝐈 𝐬𝐨𝐦𝓮𝐭𝐢𝐦𝐞𝐬 𝐛𝐞𝐜𝐨𝐦𝐞 𝐕𝐄𝐑𝐘 𝐬𝐞𝐧𝓼𝐢𝐭𝐢𝐯𝐞, 𝐬𝓸 𝐰𝐚𝐭𝐜𝐡 𝐲𝓸𝐮𝐫 𝐰𝓸𝐫𝐝𝐬.
+
+⑅ ◟ ͜ ◞ ⑅ ◟ ୨୧ ◞ ⑅ ◟ ͜ ◞ ⑅
+
+ִ   ㅤ  <img src="https://64.media.tumblr.com/ae8a7be8ff2074a4c0c0d33276e20524/81aa5d634e7e9bb3-00/s75x75_c1/2cb267df4854eba1095bcf2172bf1e1fc0207645.gifv"/> ㅤㅤ۫ <kbd>𝐃𝐍𝐈</kbd>ㅤ ۫ㅤ ⁠⁠⁠⁠ 𓏼  ִ￴￴￴  𝐘𝐨𝐮 𝐭𝓻𝐞𝐚𝐭 𝐦𝐲 𝐟𝓻𝐢𝐞𝐧𝐝𝐬 𝐛𝐚𝐝𝐥𝔂, 𝐲𝐨𝐮 𝐝𝐨𝐧'𝐭 𝐥𝐢𝓼𝐭𝐞𝐧 𝐭𝐨/𝓻𝐞𝐬𝐩𝐞𝐜𝐭 𝐦𝐲 𝓸𝐩𝐢𝐧𝐢𝓸𝐧, 𝐲𝐨𝐮'𝐫𝐞 𝐭𝓸𝓸 𝐚𝓬𝐭𝐢𝐯𝐞, 𝐭𝓻𝐚𝐧𝐬, 𝐈𝓿𝐚𝐧𝐤𝐢𝐧𝐧.
+
 [<kbd>𝐭𝐞𝐥𝐞𝐠𝐫𝐚𝐦</kbd>](https://t.me/nyarosha) - - ꒰ <img src="https://64.media.tumblr.com/134a49ff10d2afc43a19eda082540f3e/81aa5d634e7e9bb3-35/s75x75_c1/9e899358ce7c4f012224eaaf89c8ab052216d597.gifv"/> ꒱ - -
 [<kbd>𝐝𝐢𝐬𝐜𝐨𝐫𝐝</kbd>](https://discordapp.com/users/1092830937512935574)
 
