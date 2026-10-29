@@ -1,7 +1,7 @@
 <div align="center">
 <img src="https://64.media.tumblr.com/e97fade66c788f48664fe5ab64d7fe9d/579e5316ffbe1944-e6/s2048x3072/4b4feb9a5969f9bb37457a533717662f75db854e.gifv"/>
 <table border="0">
- <img src="https://64.media.tumblr.com/b6872a01282f8be7348a77391194712a/f378f7592423883a-d0/s540x810/7300917be7e766e1262f78c78cf4e37a546fcabb.pnj" align="left" hspace="90" width="300">
+ <img src="https://64.media.tumblr.com/b6872a01282f8be7348a77391194712a/f378f7592423883a-d0/s540x810/7300917be7e766e1262f78c78cf4e37a546fcabb.pnj" align="left" hspace="50" width="300">
 
 ###  ྀི   𝒂𝒃𝒐͜𝒖𝒕 𝒎𝒆    ྀ    ♪
 
