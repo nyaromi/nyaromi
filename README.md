@@ -19,9 +19,10 @@
 <img src="https://64.media.tumblr.com/3eae13d721de015e88abc6b510f9cbc9/89e8bbbfba510cc5-d7/s540x810/ca083d7c9b29c7bea32f3fa7a82b1ec170a87f72.pnj" align="right" hspace="35" width="350">
 <div align="center">
 <br clear="left">
-
  ㅤ
 
+  ㅤ
+  
   ㅤ ︎<img src="https://64.media.tumblr.com/c14ecba845c3d810facd92bc6c3d5e7e/fd181e8fe1f35335-39/s400x600/121cb1a30f271bd392adc9415bcee9f5cead4d03.pnj"/>
   
 ִִ  ㅤ   ೀ ㅤㅤ ㅤ۫ <kbd>𝐁𝐘𝐅</kbd>ㅤ ۫  ㅤ<img src="https://64.media.tumblr.com/7db64d8144753af4276819f7fc5fcf1a/81aa5d634e7e9bb3-84/s75x75_c1/07730052034a755e9a9cb98481f9153cab088c1b.gifv"/>  ִ￴￴￴  
