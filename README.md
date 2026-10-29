@@ -1,19 +1,20 @@
 <div align="center">
 <img src="https://64.media.tumblr.com/e97fade66c788f48664fe5ab64d7fe9d/579e5316ffbe1944-e6/s2048x3072/4b4feb9a5969f9bb37457a533717662f75db854e.gifv"/>
 <table border="0">
- <img src="https://64.media.tumblr.com/b6872a01282f8be7348a77391194712a/f378f7592423883a-d0/s540x810/7300917be7e766e1262f78c78cf4e37a546fcabb.pnj" align="left" hspace="20" width="300">
+ <img src="https://64.media.tumblr.com/b6872a01282f8be7348a77391194712a/f378f7592423883a-d0/s540x810/7300917be7e766e1262f78c78cf4e37a546fcabb.pnj" align="left" hspace="90" width="300">
 
 ###  ྀི   𝒂𝒃𝒐͜𝒖𝒕 𝒎𝒆    ྀ    ♪
 
-      ︎ ︎  ׅ   <img src="https://64.media.tumblr.com/617aa885c5df33244237ed1512ce3f28/81aa5d634e7e9bb3-28/s75x75_c1/8a6e4acc7c2c2427a004f5600ddd8a81212a4f3c.gifv"/>          ⎯ㅤ
+      ︎ ︎  ׅ   ͝︶ ·̩͙⏝ ͝   <img src="https://64.media.tumblr.com/617aa885c5df33244237ed1512ce3f28/81aa5d634e7e9bb3-28/s75x75_c1/8a6e4acc7c2c2427a004f5600ddd8a81212a4f3c.gifv"/>   ͝ ⏝ ·̩͙︶ ͝            ⎯ㅤ
 
    𓍼 𝓼𝒑𝟒꯭𝒔𝓹𝟔𝒔࣫𝓸𝟖  ྀི  𝓝𝐲𝐚𝐫‌𝓸𝓶𝓲   ︎𝐢࣫𝐧ֵ𝓯𝐩 
 
- ︎<img src="https://64.media.tumblr.com/c14ecba845c3d810facd92bc6c3d5e7e/fd181e8fe1f35335-39/s400x600/121cb1a30f271bd392adc9415bcee9f5cead4d03.pnj"/>
    
   ˖    𓈒  𝟏𝟓𝐲.𝐨.𓈒݂ ݃   ⑅  ‌‌ ‌‌𓏽   𝒎𝒊𝓵࣫𝒌𝒂𝒌𝒊͟𝒔𝒔𝒆𝓻 ㅤ
+
+𓎢𓎟  ㅤ  𓈒  ㅤ <kbd>𝓜𝒚 𝒇𝒂𝒏𝒅𝓸𝒎𝒔</kbd>  ㅤㅤ<img src="https://64.media.tumblr.com/6c2ba1a37158c25f33af4fda00f0d868/81aa5d634e7e9bb3-18/s75x75_c1/c98eef93b4cf229ad530faf1e8c9369c9da449fc.gifv"/>  ㅤ ׄ  ㅤ 𝒏𝓮𝒆𝒅𝒚 𝒔𝒕𝓻𝒆𝒂𝒎𝒆𝓻 𝒐𝒗𝒆𝒓𝒍𝒐𝒂𝒅, 𝒂𝓵𝒊𝒆𝒏 𝒔𝒕𝒂𝓰𝒆, 𝒎𝒊𝓵𝒈𝒓𝒂𝒎, 𝒔𝒍𝒐𝔀 𝒅𝒂𝒎𝓪𝒈𝒆, 𝒉𝓸𝓸𝒌𝒂𝒉 𝒉𝒂𝔃𝒆, 𝒔𝒆𝓴𝒂𝒊, 𝒃𝒂𝒏𝓰 𝒅𝓻𝒆𝒂𝒎! 𝒐𝓾𝒓 𝒏𝒐𝓽𝒆𝒔
   
-◟ ͜ ◞ ೀ ◟ ͜ ◞<img src="https://64.media.tumblr.com/aafc662407026adf70c946d6062a17de/c5fe67c813fcc966-cb/s100x200/7f68bb4e3755683f14e3a193598005054348ae4e.pnj"/> ◟ ͜ ◞ ೀ ◟ ͜ ◞
+◟ ͜ ◞ ೀ ◟ ͜ ◞<img src="https://64.media.tumblr.com/aafc662407026adf70c946d6062a17de/c5fe67c813fcc966-cb/s100x200/7f68bb4e3755683f14e3a193598005054348ae4e.pnj" width="35"/> ◟ ͜ ◞ ೀ ◟ ͜ ◞
 
 <img src="https://64.media.tumblr.com/3eae13d721de015e88abc6b510f9cbc9/89e8bbbfba510cc5-d7/s540x810/ca083d7c9b29c7bea32f3fa7a82b1ec170a87f72.pnj" align="right" hspace="35" width="350">
 <div align="center">
@@ -21,7 +22,7 @@
 
  ㅤ
 
-  ㅤ
+  ㅤ ︎<img src="https://64.media.tumblr.com/c14ecba845c3d810facd92bc6c3d5e7e/fd181e8fe1f35335-39/s400x600/121cb1a30f271bd392adc9415bcee9f5cead4d03.pnj"/>
   
 ִִ  ㅤ   ೀ ㅤㅤ ㅤ۫ <kbd>𝐁𝐘𝐅</kbd>ㅤ ۫  ㅤ<img src="https://64.media.tumblr.com/7db64d8144753af4276819f7fc5fcf1a/81aa5d634e7e9bb3-84/s75x75_c1/07730052034a755e9a9cb98481f9153cab088c1b.gifv"/>  ִ￴￴￴  
 𝐀𝐭 𝐟𝐢𝓻𝐬𝐭, 𝐈'𝐦 𝐯𝐞𝐫𝐲 𝓼𝐡𝐲 𝐚𝐧𝐝 𝐚𝐰𝐤𝐰𝐚𝐫𝐝, 𝐛𝐮𝐭 𝔀𝐡𝐞𝐧 𝐈 𝐠𝐞𝐭 𝐚𝐭𝐭𝐚𝐜𝐡𝐞𝐝, 𝐈 𝐛𝐞𝐜𝐨𝐦𝐞 𝐨𝐯𝐞𝐫𝐥𝐲 𝐚𝐜𝐭𝐢𝐯𝐞 𝐚𝐧𝐝 𝐜𝐥𝓲𝐧𝐠𝐲. 𝐖𝐡𝐞𝐧 𝐈'𝐦 𝐛𝐮𝐫𝐧𝐭 𝐨𝓾𝐭, 𝐈 𝐬𝐨𝐦𝓮𝐭𝐢𝐦𝐞𝐬 𝐛𝐞𝐜𝐨𝐦𝐞 𝐕𝐄𝐑𝐘 𝐬𝐞𝐧𝓼𝐢𝐭𝐢𝐯𝐞, 𝐬𝓸 𝐰𝐚𝐭𝐜𝐡 𝐲𝓸𝐮𝐫 𝐰𝓸𝐫𝐝𝐬.
