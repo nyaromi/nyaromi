@@ -1,7 +1,7 @@
 <div align="center">
-<img src="https://64.media.tumblr.com/e97fade66c788f48664fe5ab64d7fe9d/579e5316ffbe1944-e6/s2048x3072/4b4feb9a5969f9bb37457a533717662f75db854e.gifv"/>
+<img src="https://64.media.tumblr.com/bcf0206bbd68088cbfdaa7f6431d6137/7e836c8ce7af827f-b1/s540x810/558afa58324da1a325f28f20c14a7cd0242eedbb.gifv"/>
 <table border="0">
- <img src="https://64.media.tumblr.com/b6872a01282f8be7348a77391194712a/f378f7592423883a-d0/s540x810/7300917be7e766e1262f78c78cf4e37a546fcabb.pnj" align="left" hspace="30" width="300">
+ <img src="https://64.media.tumblr.com/38e667d6d20a76719bce8e7b24d30454/c15aedec4196afda-91/s400x600/e5a27758247d864976a8d88c8754ac159b76dfd8.pnj" align="left" hspace="30" width="400">
 
 ###  ྀི   𝒂𝒃𝒐͜𝒖𝒕 𝒎𝒆    ྀ    ♪
 
@@ -14,16 +14,16 @@
 
 𓎢𓎟  ㅤ  𓈒  ㅤ <kbd>𝓜𝒚 𝒇𝒂𝒏𝒅𝓸𝒎𝒔</kbd>  ㅤㅤ<img src="https://64.media.tumblr.com/6c2ba1a37158c25f33af4fda00f0d868/81aa5d634e7e9bb3-18/s75x75_c1/c98eef93b4cf229ad530faf1e8c9369c9da449fc.gifv"/>  ㅤ ׄ  ㅤ 𝒏𝓮𝒆𝒅𝒚 𝒔𝒕𝓻𝒆𝒂𝒎𝒆𝓻 𝒐𝒗𝒆𝒓𝒍𝒐𝒂𝒅, 𝒂𝓵𝒊𝒆𝒏 𝒔𝒕𝒂𝓰𝒆, 𝒎𝒊𝓵𝒈𝒓𝒂𝒎, 𝒔𝒍𝒐𝔀 𝒅𝒂𝒎𝓪𝒈𝒆, 𝒉𝓸𝓸𝒌𝒂𝒉 𝒉𝒂𝔃𝒆, 𝒔𝒆𝓴𝒂𝒊, 𝒃𝒂𝒏𝓰 𝒅𝓻𝒆𝒂𝒎! 𝒐𝓾𝒓 𝒏𝒐𝓽𝒆𝒔
   
-◟ ͜ ◞ ೀ ◟ ͜ ◞<img src="https://64.media.tumblr.com/aafc662407026adf70c946d6062a17de/c5fe67c813fcc966-cb/s100x200/7f68bb4e3755683f14e3a193598005054348ae4e.pnj" width="35"/> ◟ ͜ ◞ ೀ ◟ ͜ ◞
+◟ ͜ ◞ ೀ ◟ ͜ ◞<img src="https://64.media.tumblr.com/6ea3242525f8b4954904c80a59ba18ae/e54af6781cce63d7-01/s250x400/d822e6fd8fc57b272729f8ddf9a6ca7f184e267d.pnj" width="70"/> ◟ ͜ ◞ ೀ ◟ ͜ ◞
 
-<img src="https://64.media.tumblr.com/3eae13d721de015e88abc6b510f9cbc9/89e8bbbfba510cc5-d7/s540x810/ca083d7c9b29c7bea32f3fa7a82b1ec170a87f72.pnj" align="right" hspace="30" width="350">
+<img src="https://64.media.tumblr.com/69e43708d04ca2a9effb519bf64bf44c/c15aedec4196afda-43/s540x810/a866910b30cdcfd48681fc530d3524cadb8e52c1.pnj" align="right" hspace="30" width="400">
 <div align="center">
 <br clear="left">
  ㅤ
 
   ㅤ
   
-  ㅤ ︎<img src="https://64.media.tumblr.com/c14ecba845c3d810facd92bc6c3d5e7e/fd181e8fe1f35335-39/s400x600/121cb1a30f271bd392adc9415bcee9f5cead4d03.pnj"/>
+  ㅤ<img src="https://64.media.tumblr.com/34ff6d4bc8fdd9b39c1d9d323d5e1592/3c8423892f5474c3-ae/s540x810/37d3fd27967744ee845ff91e9c8c1574e9729007.gifv" width="300"/>
   
 ִִ  ㅤ   ೀ ㅤㅤ ㅤ۫ <kbd>𝐁𝐘𝐅</kbd>ㅤ ۫  ㅤ<img src="https://64.media.tumblr.com/7db64d8144753af4276819f7fc5fcf1a/81aa5d634e7e9bb3-84/s75x75_c1/07730052034a755e9a9cb98481f9153cab088c1b.gifv"/>  ִ￴￴￴  
 𝐀𝐭 𝐟𝐢𝓻𝐬𝐭, 𝐈'𝐦 𝐯𝐞𝐫𝐲 𝓼𝐡𝐲 𝐚𝐧𝐝 𝐚𝐰𝐤𝐰𝐚𝐫𝐝, 𝐛𝐮𝐭 𝔀𝐡𝐞𝐧 𝐈 𝐠𝐞𝐭 𝐚𝐭𝐭𝐚𝐜𝐡𝐞𝐝, 𝐈 𝐛𝐞𝐜𝐨𝐦𝐞 𝐨𝐯𝐞𝐫𝐥𝐲 𝐚𝐜𝐭𝐢𝐯𝐞 𝐚𝐧𝐝 𝐜𝐥𝓲𝐧𝐠𝐲. 𝐖𝐡𝐞𝐧 𝐈'𝐦 𝐛𝐮𝐫𝐧𝐭 𝐨𝓾𝐭, 𝐈 𝐬𝐨𝐦𝓮𝐭𝐢𝐦𝐞𝐬 𝐛𝐞𝐜𝐨𝐦𝐞 𝐕𝐄𝐑𝐘 𝐬𝐞𝐧𝓼𝐢𝐭𝐢𝐯𝐞, 𝐬𝓸 𝐰𝐚𝐭𝐜𝐡 𝐲𝓸𝐮𝐫 𝐰𝓸𝐫𝐝𝐬.
@@ -40,16 +40,12 @@
   <table style="border-collapse: collapse; border: 1px solid transparent; background: transparent;" align="center">
     <tr style="border: 1px solid transparent; background: transparent;">
       <td style="border: 1px solid transparent; background: transparent; padding: 0 5px;">
-        <img src="https://i.pinimg.com/736x/6e/b6/39/6eb639028c079c9fabc5386f521ca274.jpg" height="200" />
+        <img src="https://64.media.tumblr.com/f5a3b45ac4621968a233d220df68aa04/c15aedec4196afda-3a/s400x600/bbcd3feab19c0d1b24ff06148e54762449e628b9.pnj" height="200" />
       </td>
       <td style="border: 1px solid transparent; background: transparent; padding: 0 5px;">
-        <img src="https://i.pinimg.com/736x/3f/b7/92/3fb792561fcd025deefedc9d4f7ae464.jpg" height="200" />
+        <img src="https://64.media.tumblr.com/39cc0c59305160dcc63dc0188b3caee6/c15aedec4196afda-87/s400x600/18ad62a2c741cae3bd991c9baac8442b3776450d.pnj" height="200" />
       </td>
       <td style="border: 1px solid transparent; background: transparent; padding: 0 5px;">
-        <img src="https://i.pinimg.com/736x/71/6b/11/716b110360fa1056097b9656eda987f9.jpg" height="200" />
+        <img src="https://64.media.tumblr.com/02ce586e7c328b5a57a1d4ae915a8796/c15aedec4196afda-80/s400x600/ee0ed208069d4ae08293873128f22f643c95480f.pnj" height="200" />
       </td>
     </tr>
-  </table>
-</p>
-
- ︎<img src="https://64.media.tumblr.com/9611c1280697f063b0f8953e6cc122ef/579e5316ffbe1944-aa/s2048x3072/a8598d75536a01e9188e445092660e69aeacf1c7.pnj"/>
