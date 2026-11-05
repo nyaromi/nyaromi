@@ -1,7 +1,7 @@
 <div align="center">
 <img src="https://64.media.tumblr.com/e73c9a5928c66380a8f0b8474527e10f/1aa455817d89da95-7b/s540x810/5e27ef121727bf0d07860f9e65b70cfc4d84951c.gifv"/>
 <table border="0">
- <img src="https://64.media.tumblr.com/38e667d6d20a76719bce8e7b24d30454/c15aedec4196afda-91/s400x600/e5a27758247d864976a8d88c8754ac159b76dfd8.pnj" align="left" hspace="30" width="400">
+ <img src="https://64.media.tumblr.com/38e667d6d20a76719bce8e7b24d30454/c15aedec4196afda-91/s400x600/e5a27758247d864976a8d88c8754ac159b76dfd8.pnj" align="left" hspace="30" width="500">
 
 ###  ྀི   𝒂𝒃𝒐͜𝒖𝒕 𝒎𝒆    ྀ    ♪
 
@@ -16,7 +16,7 @@
   
 ◟ ͜ ◞ ೀ ◟ ͜ ◞<img src="https://64.media.tumblr.com/6ea3242525f8b4954904c80a59ba18ae/e54af6781cce63d7-01/s250x400/d822e6fd8fc57b272729f8ddf9a6ca7f184e267d.pnj" width="70"/> ◟ ͜ ◞ ೀ ◟ ͜ ◞
 
-<img src="https://64.media.tumblr.com/69e43708d04ca2a9effb519bf64bf44c/c15aedec4196afda-43/s540x810/a866910b30cdcfd48681fc530d3524cadb8e52c1.pnj" align="right" hspace="30" width="400">
+<img src="https://64.media.tumblr.com/69e43708d04ca2a9effb519bf64bf44c/c15aedec4196afda-43/s540x810/a866910b30cdcfd48681fc530d3524cadb8e52c1.pnj" align="right" hspace="30" width="500">
 <div align="center">
 <br clear="left">
  ㅤ
