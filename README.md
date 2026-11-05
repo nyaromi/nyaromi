@@ -23,7 +23,7 @@
 
   ㅤ
   
-  ㅤ<img src="https://64.media.tumblr.com/34ff6d4bc8fdd9b39c1d9d323d5e1592/3c8423892f5474c3-ae/s540x810/37d3fd27967744ee845ff91e9c8c1574e9729007.gifv" width="300"/>
+  ㅤ<img src="https://64.media.tumblr.com/34ff6d4bc8fdd9b39c1d9d323d5e1592/3c8423892f5474c3-ae/s540x810/37d3fd27967744ee845ff91e9c8c1574e9729007.gifv" width="270"/>
   
 ִִ  ㅤ   ೀ ㅤㅤ ㅤ۫ <kbd>𝐁𝐘𝐅</kbd>ㅤ ۫  ㅤ<img src="https://64.media.tumblr.com/7db64d8144753af4276819f7fc5fcf1a/81aa5d634e7e9bb3-84/s75x75_c1/07730052034a755e9a9cb98481f9153cab088c1b.gifv"/>  ִ￴￴￴  
 𝐀𝐭 𝐟𝐢𝓻𝐬𝐭, 𝐈'𝐦 𝐯𝐞𝐫𝐲 𝓼𝐡𝐲 𝐚𝐧𝐝 𝐚𝐰𝐤𝐰𝐚𝐫𝐝, 𝐛𝐮𝐭 𝔀𝐡𝐞𝐧 𝐈 𝐠𝐞𝐭 𝐚𝐭𝐭𝐚𝐜𝐡𝐞𝐝, 𝐈 𝐛𝐞𝐜𝐨𝐦𝐞 𝐨𝐯𝐞𝐫𝐥𝐲 𝐚𝐜𝐭𝐢𝐯𝐞 𝐚𝐧𝐝 𝐜𝐥𝓲𝐧𝐠𝐲. 𝐖𝐡𝐞𝐧 𝐈'𝐦 𝐛𝐮𝐫𝐧𝐭 𝐨𝓾𝐭, 𝐈 𝐬𝐨𝐦𝓮𝐭𝐢𝐦𝐞𝐬 𝐛𝐞𝐜𝐨𝐦𝐞 𝐕𝐄𝐑𝐘 𝐬𝐞𝐧𝓼𝐢𝐭𝐢𝐯𝐞, 𝐬𝓸 𝐰𝐚𝐭𝐜𝐡 𝐲𝓸𝐮𝐫 𝐰𝓸𝐫𝐝𝐬.
